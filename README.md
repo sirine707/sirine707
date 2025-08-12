@@ -119,4 +119,4 @@
 
 ---
 
-<h3 align="center">🌟 May Allah increase us in beneficial knowledge 🌟</h3>
+<h3 align="center">🌟 Let's Connect 🌟</h3>
